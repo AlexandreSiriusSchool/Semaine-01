@@ -40,3 +40,6 @@ Bienvenue chez nous, et bon travail!
 L'équipe Sirius School
 
 Ah la lèpre,ah la lèpre ça voulait dire ...
+
+Moi à mon bisounours je lui fais des bisous , des bisous dans le cou des bisous tout partout;
+Moi mon bisounours il adore les bisous ...
